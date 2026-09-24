@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on 沒有
 - 📫 How to reach me 113B11200@mailst.cjcu.edu.tw
 - 😄 Pronouns: 林志玲
-- ⚡ Fun fact: 沒有
+- ⚡ Fun fact: 我很可愛
 
 <!---
 Tiimino155/Tiimino155 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
